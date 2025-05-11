@@ -1,2 +1,0 @@
-# Krinazfilms.io
-Krinazfilms.io
